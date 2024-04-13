@@ -30,7 +30,7 @@ how it falls or rises, affecting the delivery and feel.
 Some flows may feel familiar, 
 like the ride of tension and release and buildup and bassdrop
 But, set your tempo to the beat of your own drum. 
-And climax how you desire.
+
 Phrasing. and. synonyms. 
 
 Also, punctuation cues for pace..
