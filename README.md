@@ -1,4 +1,5 @@
-# poems
+# poems:
+## How to write a poem
 First, a new canvas - a space to place your words.
 Persistent and accessible;
 A hard or soft medium, of course it matters. 
